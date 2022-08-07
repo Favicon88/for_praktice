@@ -1,3 +1,1 @@
 # for_praktice
-
-измывыа
